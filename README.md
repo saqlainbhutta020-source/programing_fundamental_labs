@@ -1,2 +1,2 @@
 # programing_fundamental_labs
-PF__LAB__BSCS_1ST___SECTION__D___ROLL NO(16)__BY __MUAMMAD AHMAD
+PF__LAB__BSCS_1ST___SECTION__D___ROLL NO(16)__BY __MUHAMMAD AHMAD
